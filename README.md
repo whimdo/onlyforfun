@@ -1,2 +1,0 @@
-# onlyforfun
-nothing,vacation entertain
